@@ -1,2 +1,0 @@
-# jono
-Ok aja
